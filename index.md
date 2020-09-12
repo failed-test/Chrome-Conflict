@@ -1,4 +1,4 @@
-Discord: https://discord.gg/v9tq5aK
+Discord: [https://discord.gg/v9tq5aK](https://discord.gg/v9tq5aK)
 
 
 ## Welcome to GitHub Pages
